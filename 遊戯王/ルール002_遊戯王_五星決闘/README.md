@@ -89,7 +89,8 @@ ___
 参考リンク
 ---
 
-[とっておき！　遊戯王の最高に面白い遊び方“ワンデッキデュエル”！](http://cardkingdom.jp/yuugi/ex01.html)(ｶｰﾄﾞｷﾝｸﾞﾀﾞﾑ)
+[とっておき！　遊戯王の最高に面白い遊び方“ワンデッキデュエル”！](http://cardkingdom.jp/yuugi/ex01.html)(ｶｰﾄﾞｷﾝｸﾞﾀﾞﾑ)  
+[白舟隷書教漢フォント](http://www.hakusyu.com/download_education.htm)
 
 ---
 以上です。  
